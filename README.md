@@ -1,4 +1,5 @@
 # HOPDONGTIEUBIEU
+[hopdongthamBTNN TL883.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9981335/hopdongthamBTNN.TL883.pdf)
 [1.HD CFT - PM.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9951192/1.HD.CFT.-.PM.pdf)
 [2.HD THIBIDI - PM.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9951193/2.HD.THIBIDI.-.PM.pdf)
 [3.HD 19.09.2022.HDTC.AP-PM _ Tham be tong nhua nong TL2 _ Cty Phat Minh 21.09.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9618074/3.HD.19.09.2022.HDTC.AP-PM._.Tham.be.tong.nhua.nong.TL2._.Cty.Phat.Minh.21.09.pdf)
