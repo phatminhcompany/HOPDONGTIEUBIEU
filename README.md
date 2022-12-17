@@ -13,3 +13,4 @@
 [10.hopdong.nhontrach.da.ky.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9618088/10.hopdong.nhontrach.da.ky.pdf)
 [11.HD 19.09.2022.HDTC.AP-PM _ Tham be tong nhua nong TL2 _ Cty Phat Minh 21.09.github.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/9640169/11.HD.19.09.2022.HDTC.AP-PM._.Tham.be.tong.nhua.nong.TL2._.Cty.Phat.Minh.21.09.github.pdf)
 [12.HD.MAICHITHO.KM1+00-KM6+00.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/10075537/12.HD.MAICHITHO.KM1%2B00-KM6%2B00.pdf)
+[13.hd.32.tuyen duong.TP.CanTho.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/10251713/13.hd.32.tuyen.duong.TP.CanTho.pdf)
