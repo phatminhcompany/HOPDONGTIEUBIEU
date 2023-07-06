@@ -16,3 +16,4 @@
 [13.hd.32.tuyen duong.TP.CanTho.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/10251713/13.hd.32.tuyen.duong.TP.CanTho.pdf)
 [14.hd.botulenhvung5.daky.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/10251762/14.hd.botulenhvung5.daky.pdf)
 [15.HD.CHOTHOILAI.DAKY.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/10251763/15.HD.CHOTHOILAI.DAKY.pdf)
+[hd.MH3.daky.nosee.pdf](https://github.com/phatminhcompany/HOPDONGTIEUBIEU/files/11967381/hd.MH3.daky.nosee.pdf)
